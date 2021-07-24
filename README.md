@@ -7,7 +7,7 @@
 
 原来的群关了，有小伙伴新建了一个原来的群，想加入的还是可以加入。
 
-### [交流反馈频道](https://t.me/jdc_jdc)
+
 
 ![图片](https://user-images.githubusercontent.com/59724658/126760941-3daafe10-2631-4811-94ff-b76f02e1839a.png)
 
